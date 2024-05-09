@@ -7,7 +7,7 @@ Roll No. 102167002
 
 ![image](https://github.com/HarsHsanjay1114/Parameter-Estimation-Assignment/blob/main/assets/102167002_1.jpg)
 
-![image](https://github.com/Divyam6969/Parameter-Estimation-Assignment/assets/86784749/cc08671c-7461-4cad-b053-6cfe07a5b389)
+![image](https://github.com/HarsHsanjay1114/Parameter-Estimation-Assignment/blob/main/assets/102167002_2.jpg)
 
 ![image](https://github.com/Divyam6969/Parameter-Estimation-Assignment/assets/86784749/86210c24-1241-4761-9e4d-53ce73cc531e)
 
